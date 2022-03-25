@@ -9,4 +9,3 @@
 **Bachelor's degree in cybersecurity, front-end development courses from MyWay**
 
 ## B1, watching movies/series in English
-
